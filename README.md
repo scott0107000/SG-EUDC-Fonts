@@ -15,3 +15,7 @@
 字言字型技术部（Fancytype Foundry Tech Department）
 
 2026年6月10日
+
+### 如有需要或疑问，或有其它编码需求，或为您的字型开发上述规格产品，敬请垂询。
+[发送Messenger讯息](https://m.me/105901808833759)
+[发送电子信箱](mailto:fancytypefoundry@gmail.com)
